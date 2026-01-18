@@ -22,7 +22,7 @@ I enjoy building clean, scalable applications and continuously expanding my skil
 
 ## Contact
 
-- Connect with me on **[LinkedIn](https://www.linkedin.com/)**
+- Connect with me on **[LinkedIn](https://www.linkedin.com/in/ansh-krishna-99b344243/)**
 - Email: ansh.krishna1@gmail.com
 
 Feel free to reach out!
